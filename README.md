@@ -3,7 +3,7 @@
 🎭 Cyber Security 
 🎧 Audiophile 
 📍 Aqaba, Jordan 🇯🇴
-@qutaibam0
+qutaiba.bio.link
 
 <!---
 Qutaibamo/Qutaibamo is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
